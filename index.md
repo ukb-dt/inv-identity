@@ -42,9 +42,7 @@ Let me unpack this properly.
 
 Everything you’ve said points to a simple, solid invariant:
 
-### **You now experience yourself as a physical system first,
-
-and a social persona second.**
+### **You now experience yourself as a physical system first, and a social persona second.**
 
 Not many people do.
 But scientists, athletes, engineers, and some mystics do.
